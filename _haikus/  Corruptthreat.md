@@ -5,5 +5,5 @@ author: Deepak
 ---
 
 Threat is beyond us<br> 
-Knowing nothing , sitting relaxed<br>
-Nature will strike back, I warn you!<br>
+Knowing nothing , We all know where we came from<br>
+Nature will strike back, Let's Change the Future<br>
