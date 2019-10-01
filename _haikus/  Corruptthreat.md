@@ -5,5 +5,5 @@ author: Deepak
 ---
 
 Threat is beyond us<br> 
-Where we came from<br>
+those bright pieces of future,<br>
 Let's Change the Future<br>
